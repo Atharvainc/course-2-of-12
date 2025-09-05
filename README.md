@@ -1,0 +1,1 @@
+The file above is the script in which we interviewed Dr. Anupama Vrittamvar, in which she talked about the difficulties she faces in managing her clinic/therapy place. Most of the script is in marathi. 
